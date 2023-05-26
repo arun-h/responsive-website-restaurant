@@ -9,4 +9,4 @@ For Project Enquiry
 Email - hirematharun001@gmail.com
 
 Follow Me on
-LinkedIn -[ l](https://www.linkedin.com/in/arun-hiremath-7b1487214/)
+LinkedIn -[ Arun hiremath](https://www.linkedin.com/in/arun-hiremath-7b1487214/)
